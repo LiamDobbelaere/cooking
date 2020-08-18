@@ -34,3 +34,46 @@ Doe het eitje langs de rand naar beneden glijden.
 13. Neem de eitjes vast bij de zijkanten en snij ze in twee in de lengte
 14. Doe wat zout op je eitjes
 15. Smakelijk
+
+## Omelet
+
+1. Neem een groot kommetje (plastic of metaal)
+2. Breek één of meer eitjes aan de rand van het kommetje
+
+```
+Breek de eitjes op hun dikke midden op de rand, doe het hard genoeg zodat de rand ongeveer 1cm in het eitje komt.
+```
+
+3. Klop de eitjes in het kommetje tot het schuimt, al het donker eigeel moet bleek oranje worden
+
+```
+Zorg dat al het donker eigeel goed meekomt, draai het kommetje eens om het donkere eigeel goed te zien en af te krabben om ze mee te kloppen.
+```
+
+4. Bereid een pannetje voor met een beetje boter in, er moet genoeg boter zijn om een dun laagje te vormen in de pan wanneer het smelt
+
+```
+Neem bijvoorbeeld een hoekje van de boter met een vork.
+```
+
+5. Zet het pannetje op het vuurtje, en zet het vuurtje op maximum
+6. Wacht tot de boter goed gesmolten is
+
+```
+Er mag geen wit meer van de boter zichtbaar zijn, het boter mag zelfs een beetje bruinen.
+```
+
+7. Zet het vuurtje lager naar in mijn geval 5
+8. Doe de geklopte eitjes van het kommetje in de pan
+
+```
+Giet de geklopte eitjes in een vlotte beweging op het midden van de pan, raak de rand van de pan niet aan met het kommetje.
+```
+
+9. De geklopte eitjes gaan nu rap hard worden, er kan wat ei aan de bovenkant liggen die vloeibaar blijft: kantel de pan en houd de omelet vast met een plastic schepper zodat het vloeibaar ei ook hard kan worden
+10. Doe terwijl wat zout op het omeletje
+11. Het omeletje komt los wanneer de onderkant opwarmt, het mag niet té bruin worden aan de onderkant, hou dit in de gaten: als het begint los te komen en lichtjes te bruinen vanonder is het omeletje klaar
+12. Zet de pan weg van het vuur en zet het vuurtje uit
+13. Giet het omeletje in een bord
+14. Het pannetje mag je niet direct afwassen met koud water, warm water kan wel direct
+15. Smakelijk
