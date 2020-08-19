@@ -77,3 +77,18 @@ Giet de geklopte eitjes in een vlotte beweging op het midden van de pan, raak de
 13. Giet het omeletje in een bord
 14. Het pannetje mag je niet direct afwassen met koud water, warm water kan wel direct
 15. Smakelijk
+
+## Spiegelei
+
+1. Doe wat boter in een pannetje en zet het vuurtje op maximum
+2. Verlaag het vuurtje (in mijn geval naar 7) als de boter gesmolten is
+3. Breek een ei open op de rand van het pannetje en laat het binnenste eruit lopen
+
+```
+Zorg dat je het zeker dicht genoeg bij de pan doet en niet van een hoogte, anders gaat het eitje uitlopen.
+```
+
+3. Doe wat peper en zout op het eitje
+4. Wacht tot de randjes wat bruin worden, het eigeel zal ook broebelen en witte plekken krijgen, dan is het klaar
+5. Zet het vuurtje uit en zet de pan aan de kant
+6. Smakelijk
