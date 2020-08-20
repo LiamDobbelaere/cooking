@@ -92,3 +92,31 @@ Zorg dat je het zeker dicht genoeg bij de pan doet en niet van een hoogte, ander
 4. Wacht tot de randjes wat bruin worden, het eigeel zal ook broebelen en witte plekken krijgen, dan is het klaar
 5. Zet het vuurtje uit en zet de pan aan de kant
 6. Smakelijk
+
+## Omelet met spek
+
+1. Klop je eitjes in een kommetje tot het goed schuimt
+
+```
+Als je bij het kloppen een beetje in de lucht gaat met je klopper, kan je meer schuim maken.
+```
+
+2. Doe wat boter in een pannetje
+3. Zet het pannetje op het vuurtje op maximum en wacht tot de boter gesmolten is
+4. Doe de spekjes in het pannetje en verlaag het vuurtje (in mijn geval naar 7), wacht tot de spekjes wat gebruind zijn
+
+```
+Zorg dat de spekjes niet te veel op elkaar liggen zodat ze goed kunnen bakken.
+```
+
+5. Verlaag het vuurtje naar 5 en giet de geklopte eitjes in de pan
+6. Zorg dat de spekjes goed gespreid zijn in het omeletje
+7. Voeg eventueel peper toe
+8. Wacht tot het omeletje hard wordt
+
+```
+Er mag nog een beetje vloeibaar omelet liggen, dat is niet erg. Eventueel kan je een gaatje maken in het omeletje of het pannetje wat kantelen als er te veel vloeibaar omelet blijft liggen.
+```
+
+9. Zet het vuurtje uit en zet het pannetje aan de kant
+10. Smakelijk
