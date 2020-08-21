@@ -24,7 +24,7 @@ Vergeet de dampkap niet aan te steken.
 Doe het eitje langs de rand naar beneden glijden.
 ```
 
-6. Zet het vuur iets lager (2 lager in mijn geval)
+6. Zet het vuur iets lager (2 lager in mijn geval) en doe het deksel terug op het potje
 7. Wacht 10 minuten voor een hardgekookt eitje, 5 minuten voor een zachtgekookt eitje, bereid intussen koud water voor in de afwasbak
 8. Na het wachten zet je het potje naast de afwasbak
 9. Haal de eitjes uit het potje en leg ze in het koude water van de afwasbak
