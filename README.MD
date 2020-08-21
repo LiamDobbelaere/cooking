@@ -4,7 +4,7 @@
 
 Zelfde stappen voor zachtgekookt ei, maar dan 5 min laten koken.
 
-1. Doe water in een klein potje
+1. Doe WARM water in een klein potje
 
 ```
 Het water moet iets minder hoog zijn dan het ei, zodat een beetje van het ei bloot ligt. Als je dit niet doet gaat het eitje dansen bij het koken en kan het kapotgaan.
