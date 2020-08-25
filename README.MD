@@ -137,7 +137,7 @@ Vanaf nu begin je 15 minuutjes te tellen.
 Verminder het vuurtje als het water begint te koken (in mijn geval verminderen met 2).
 ```
 
-4. Na 15 minuutjes neem een patatje uit het potje en kijk of het zacht is, als het niet zacht is, laat de patatjes nog 5 minuten koken
+4. Na 15 minuutjes: neem een patatje uit het potje en kijk of het zacht is, als het niet zacht is, laat de patatjes nog 5 minuten koken
 5. Zet het potje van het vuurtje en doe de patatjes uit het potje in een kleiner potje of een bord
 
 ```
