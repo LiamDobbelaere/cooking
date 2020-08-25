@@ -120,3 +120,36 @@ Er mag nog een beetje vloeibaar omelet liggen, dat is niet erg. Eventueel kan je
 
 9. Zet het vuurtje uit en zet het pannetje aan de kant
 10. Smakelijk
+
+## Gekookte en gebakken patatjes
+
+1. Neem wat geschilde patatjes en snijd ze in twee
+2. Doe de patatjes in een potje met warm water
+
+```
+De hoeveelheid water moet genoeg zijn zodat de patatjes ondergedompeld zijn.
+```
+
+3. Doe het potje op het vuurtje op maximum en zet het dekseltje op
+
+```
+Vanaf nu begin je 15 minuutjes te tellen.
+Verminder het vuurtje als het water begint te koken (in mijn geval verminderen met 2).
+```
+
+4. Na 15 minuutjes neem een patatje uit het potje en kijk of het zacht is, als het niet zacht is, laat de patatjes nog 5 minuten koken
+5. Zet het potje van het vuurtje en doe de patatjes uit het potje in een kleiner potje of een bord
+
+```
+Nu heb je al gekookte patatjes dus kan je hier al stoppen, maar je kan nog verder gaan om ze te bakken.
+```
+
+6. Doe een pannetje op het vuur met wat boter in, zet het vuurtje op maximum
+7. Snijd de gekookte patatjes nog eens in twee
+8. Wanneer de boter gesmolten is, doe je de gekookte patatjes in het pannetje
+9. Verlaag het vuurtje (in mijn geval met 1)
+10. Doe wat zout op de patatjes en wacht tot ze beginnen te bruinen aan de onderkant
+11. Wanneer de patatjes wat bruin zijn, draai je ze allemaal om
+12. Doe weer wat zout op de omgedraaide patatjes
+13. Wanneer de patatjes bruin zijn aan hun andere kant, zet je het vuurtje uit en zet je het pannetje van het vuurtje
+14. Smakelijk
