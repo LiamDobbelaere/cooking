@@ -153,3 +153,30 @@ Nu heb je al gekookte patatjes dus kan je hier al stoppen, maar je kan nog verde
 12. Doe weer wat zout op de omgedraaide patatjes
 13. Wanneer de patatjes bruin zijn aan hun andere kant, zet je het vuurtje uit en zet je het pannetje van het vuurtje
 14. Smakelijk
+
+## Gestampte patatjes
+
+1. Snijd wat geschilde patatjes in twee, grote patatjes snijd je 2x in twee, eens in de lengte en dan plat in de breedte
+2. Doe de patatjes in een potje met water en roer de patatjes met je hand om het zetmeel uit de patatjes te krijgen
+3. Giet de patatjes in een verziep
+4. Neem een plastic potje met dekseltje en doe er een kleine bodem water in
+5. Doe de patatjes in het plastic potje en leg het dekseltje er los op, zorg dat het potje kan ademen via het gaatje
+6. Zet het potje in de microgolf en start op 900W voor ongeveer 10 minuten
+7. Zet een kookpotje klaar op het vuur
+8. Doe een flinke hoeveelheid boter in het kookpotje
+9. Zet het vuurtje op maximum, wanneer de boter begint te smelten zet je het vuurtje uit
+10. Wanneer de patatjes klaar zijn in de microgolf, kijk je eerst of ze zacht genoeg zijn
+11. Giet de patatjes uit in het verziep, en giet ze daarna in het kookpotje
+12. Stamp de patatjes
+13. Doe wat melk, room en zout bij en roer in het kookpotje
+14. Zet het kookpotje op het vuur
+15. Zet het vuurtje op maximum en roer af en toe, het mag niet te hard koken
+16. Verlaag het vuurtje naar 7 of 5 (in mijn geval) als de puree wat harder begint te worden
+17. Doe wat nootmuskaat bij en een ei
+
+```
+Wanneer je een eitje bijdoet moet je direct goed roeren.
+```
+
+18. Stop wanneer je denkt dat het goed is
+19. Smakelijk
