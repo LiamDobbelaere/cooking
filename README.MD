@@ -186,11 +186,13 @@ Wanneer je een eitje bijdoet moet je direct goed roeren.
 1. Doe wat water in een groot genoeg kookpotje, ongeveer halfvol
 2. Doe een goeie hoeveelheid zout in het kookpotje
 3. Zet het potje op het vuur en zet het deksel op tot het water kookt
-4. Snijd intussen een tomaatje en zalm in blokjes en doe dit in een plastic potje
-5. Als het water kookt, doe je al de noedel noedel in het potje (1/4 ongeveer voor een doos)
-6. Verlaag het vuurtje naar 8, in ongeveer een kwartier zal de noedel noedel klaar zijn
-7. Doe ook maïs en wat bieslook in het potje
-8. Doe wat mayonnaise bij in het potje en roer alles goed
+4. Snijd intussen een tomaatje in blokjes
+5. Doe peper en zout op het tomaatje en doe dit in een plastic potje
+6. Doe wat zalm in blokjes en doe dit ook in het plastic potje
+7. Als het water kookt, doe je al de noedel noedel in het potje (1/4 ongeveer voor een doos)
+8. Verlaag het vuurtje naar 8, in ongeveer een kwartier zal de noedel noedel klaar zijn
+9. Doe ook maïs en wat bieslook in het potje
+10. Doe wat mayonnaise bij in het potje en roer alles goed
 
 ```
 Ongeveer 1.5 soeplepels mayonnaise.
@@ -207,6 +209,5 @@ Je kan eerst een noedel uit het kookpotje halen met een vorkje om te kijken of h
 12. Giet de noedel noedel terug in een potje met vers koud water en wacht 2 minuutjes
 13. Giet de noedel noedel dan terug in het verziep
 14. Doe wat zout op de noedel noedels en giet ze in het potje met al de rest in
-15. Doe nog een soeplepel mayonnaise bij voor de noedel noedel
-16. Roer alles goed
-17. Smakelijk
+15. Roer alles goed
+16. Smakelijk
