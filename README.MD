@@ -211,3 +211,33 @@ Je kan eerst een noedel uit het kookpotje halen met een vorkje om te kijken of h
 14. Doe wat zout op de noedel noedels en giet ze in het potje met al de rest in
 15. Roer alles goed
 16. Smakelijk
+
+## Vis & saus
+
+1. Snijd de vis in twee omdat het dan makkelijker is om te nemen
+2. Doe wat bloem in een bordje
+3. Doe de vis in het bordje en draai ze om, om zo ook op de andere kant bloem te krijgen
+4. Leg de vis terug op een plankje, laat overtollig bloem ervan vallen, het meeste bloem zal blijven plakken
+5. Doe wat boter in een pannetje en laat het smelten
+6. Verlaag het vuurtje met 2 en leg de vis erin
+7. Doe wat zout en peper op de vis
+8. Doe intussen room in een kookpotje
+9. Neem 1/4 van een bouillonblokje en verkruimel het boven het kookpotje
+10. Zet dit kookpotje op het vuur, het mag niet hard koken maar moet zachtjes broebelen, dit voor ongeveer 20 minuten
+11. Draai intussen de vis om met een spatel als het voor de helft gebakken lijkt (ongeveer 5-10 minuten)
+12. Doe opnieuw wat zout en peper op het visje
+13. Roer intussen ook eens in het kookpotje
+14. Stek af en toe met een mes in de dikste delen van het visje, als het makkelijk erdoor gaat zoals boter, is dat visje gaar
+
+```
+Het ene stuk vis kan al rapper gaar zijn dan de andere, haal gare vis eruit met de spatel.
+```
+
+15. Haal de gare vis uit het pannetje met een spatel en doe het in een bordje
+
+```
+Probeer ook de saus en het bruine van de pan op het visje te doen na het uitscheppen.
+```
+
+16. Doe de saus uit het kookpotje erbovenop
+17. Smakelijk!
