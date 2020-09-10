@@ -240,4 +240,4 @@ Probeer ook de saus en het bruine van de pan op het visje te doen na het uitsche
 ```
 
 16. Doe de saus uit het kookpotje erbovenop
-17. Smakelijk!
+17. Smakelijk
