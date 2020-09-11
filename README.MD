@@ -241,3 +241,18 @@ Probeer ook de saus en het bruine van de pan op het visje te doen na het uitsche
 
 16. Doe de saus uit het kookpotje erbovenop
 17. Smakelijk
+
+## Wortelschijfjes
+
+1. Vul een kookpotje voor 1/3 met warm water
+2. Doe de wortelschijfjes in het potje
+3. Zet het op het vuurtje op maximum tot het water kookt
+4. Wanneer het water begint te koken, verlaag je het vuurtje met 2
+5. Haal om de 5 minuten eens een wortelschijfje uit met een lepel om te proeven of het al zacht is
+6. Als ze zacht genoeg zijn, giet je het kookpotje uit in een verziep
+7. Doe 2 goeie klonters boter in het kookpotje en wacht tot de boter gesmolten is
+8. Doe de worteltjes in het kookpotje en roer ze
+9. Doe een kleine soeplepel kristalsuiker bij
+10. Laat de worteltjes wat aanbakken in het kookpotje en roer af en toe, tot je denkt dat ze klaar zijn
+11. Doe wat peper bij en roer de worteltjes nog eens
+12. Smakelijk
